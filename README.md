@@ -1,0 +1,1 @@
+Hi There! My name is Nathaniel Yang! This is my Submission for the Cotiviti Intern Position! I had to send the video via Email as it was too large to send and compress! It will be under an email listed as nateyang9090@gmail.com with the subject line INTERN - Nathaniel Yang - University of Minnesota Crookston! Thank you so much for the opportunity and your time!
